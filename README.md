@@ -3,7 +3,8 @@
 
 ☘️ genderfluid + cisgender 𝜗
 
-c+h anytime.ᐟ 
+c+h anytime.ᐟ any other info about me you can find on my websites ^_^
+I'm not very talkative but i'm a good listener.
 
 " And then, in a footnote, **he** mentions the great 1x1x1x1. " 
 
