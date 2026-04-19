@@ -1,10 +1,13 @@
+<img width="1077" height="432" alt="image" src="https://github.com/user-attachments/assets/c86dadb3-d8be-49e9-8c1d-7096c336916e" />
 
-<img width="612" height="612" alt="image" src="https://github.com/user-attachments/assets/ae23550a-18d9-448f-a74a-8a60616e04ba" />
+
+
 
 # 𝔥𝔢𝔩𝔩𝔬 ᝰ.ᐟ 
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/6887e543-07ed-4cfa-9d95-d2031be1a34c" />
+
+
 
 
 ☘️ 𝔤𝔢𝔫𝔡𝔢𝔯𝔣𝔩𝔲𝔦𝔡 + 𝔠𝔦𝔰𝔤𝔢𝔫𝔡𝔢𝔯 𝜗 𝔲𝔫𝔡𝔢𝔯 12 𝔡𝔫𝔦, 𝔬𝔳𝔢𝔯 18 𝔡𝔢𝔭𝔢𝔫𝔡𝔰.
@@ -15,3 +18,10 @@
 " 𝔄𝔫𝔡 𝔱𝔥𝔢𝔫, 𝔦𝔫 𝔞 𝔣𝔬𝔬𝔱𝔫𝔬𝔱𝔢, **𝔥𝔢** 𝔪𝔢𝔫𝔱𝔦𝔬𝔫𝔰 𝔱𝔥𝔢 𝔤𝔯𝔢𝔞𝔱 1𝔵1𝔵1𝔵1. " 
 
 𝔟𝔶𝔢 ᝰ.ᐟ 🍀
+
+
+
+<img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/0e96ff38-07f4-47cf-b19a-55ad5922e7b2" />
+
+<img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/bafcd316-89c9-4c1c-ba73-80b62e45695d" />
+
