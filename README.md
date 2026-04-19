@@ -1,9 +1,10 @@
-https://github.com/user-attachments/assets/e1d3e389-10d1-4463-a43e-1834c9593abb" />
+
+                                 <img width="612" height="612" alt="image" src="https://github.com/user-attachments/assets/ae23550a-18d9-448f-a74a-8a60616e04ba" />
 
 # 𝔥𝔢𝔩𝔩𝔬 ᝰ.ᐟ 
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
 
-https://github.com/user-attachments/assets/ca3f8e72-0cf0-499e-b302-feae559b30d3" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/6887e543-07ed-4cfa-9d95-d2031be1a34c" />
 
 
 ☘️ 𝔤𝔢𝔫𝔡𝔢𝔯𝔣𝔩𝔲𝔦𝔡 + 𝔠𝔦𝔰𝔤𝔢𝔫𝔡𝔢𝔯 𝜗 𝔲𝔫𝔡𝔢𝔯 12 𝔡𝔫𝔦, 𝔬𝔳𝔢𝔯 18 𝔡𝔢𝔭𝔢𝔫𝔡𝔰.
