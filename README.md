@@ -11,15 +11,3 @@
 𝔟𝔶𝔢 ᝰ.ᐟ 🍀
 
 <img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/29924f15-8538-4d3a-87af-c9a8a4cfc701" />
-
-
-
-
-
-
-
-
-
-
-
-
