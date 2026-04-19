@@ -1,9 +1,9 @@
-https://i.pinimg.com/736x/63/3d/b9/633db9cbafc5d8587f736a8338dd45ac.jpg<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e1d3e389-10d1-4463-a43e-1834c9593abb" />
+width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/e1d3e389-10d1-4463-a43e-1834c9593abb" />
 
 # 𝔥𝔢𝔩𝔩𝔬 ᝰ.ᐟ 
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
 
-https://i.pinimg.com/736x/6c/5b/04/6c5b04aa2394e94a0151646ce1438de4.jpg<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ca3f8e72-0cf0-499e-b302-feae559b30d3" />
+width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ca3f8e72-0cf0-499e-b302-feae559b30d3" />
 
 
 ☘️ 𝔤𝔢𝔫𝔡𝔢𝔯𝔣𝔩𝔲𝔦𝔡 + 𝔠𝔦𝔰𝔤𝔢𝔫𝔡𝔢𝔯 𝜗 𝔲𝔫𝔡𝔢𝔯 12 𝔡𝔫𝔦, 𝔬𝔳𝔢𝔯 18 𝔡𝔢𝔭𝔢𝔫𝔡𝔰.
