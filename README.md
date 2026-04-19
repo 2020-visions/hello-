@@ -1,10 +1,7 @@
-<img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/a494e942-f054-4162-b9d7-c61238d835fc" />
+<img width="540" height="337" alt="image" src="https://github.com/user-attachments/assets/020d3cce-55a1-4123-a3fd-dd8edc7c0e4b" />
 # 𝔥𝔢𝔩𝔩𝔬 ᝰ.ᐟ 
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
 ☘️ 𝔤𝔢𝔫𝔡𝔢𝔯𝔣𝔩𝔲𝔦𝔡 + 𝔠𝔦𝔰𝔤𝔢𝔫𝔡𝔢𝔯 𝜗 𝔲𝔫𝔡𝔢𝔯 12 𝔡𝔫𝔦, 𝔬𝔳𝔢𝔯 18 𝔡𝔢𝔭𝔢𝔫𝔡𝔰.
-<img width="540" height="337" alt="image" src="https://github.com/user-attachments/assets/020d3cce-55a1-4123-a3fd-dd8edc7c0e4b" />
-
-
 
 𝔠+𝔥 𝔞𝔫𝔶𝔱𝔦𝔪𝔢.ᐟ 𝔞𝔫𝔶 𝔬𝔱𝔥𝔢𝔯 𝔦𝔫𝔣𝔬 𝔞𝔟𝔬𝔲𝔱 𝔪𝔢 𝔶𝔬𝔲 𝔠𝔞𝔫 𝔣𝔦𝔫𝔡 𝔬𝔫 𝔪𝔶 𝔴𝔢𝔟𝔰𝔦𝔱𝔢𝔰 ^_^
 ℑ'𝔪 𝔫𝔬𝔱 𝔳𝔢𝔯𝔶 𝔱𝔞𝔩𝔨𝔞𝔱𝔦𝔳𝔢 𝔟𝔲𝔱 𝔦'𝔪 𝔞 𝔤𝔬𝔬𝔡 𝔩𝔦𝔰𝔱𝔢𝔫𝔢𝔯!
