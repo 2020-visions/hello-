@@ -3,7 +3,7 @@
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
 ☘️ 𝔤𝔢𝔫𝔡𝔢𝔯𝔣𝔩𝔲𝔦𝔡 + 𝔠𝔦𝔰𝔤𝔢𝔫𝔡𝔢𝔯 𝜗 𝔲𝔫𝔡𝔢𝔯 12 𝔡𝔫𝔦, 𝔬𝔳𝔢𝔯 18 𝔡𝔢𝔭𝔢𝔫𝔡𝔰.
 <p align="center">
-  <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/14b1f3c1-048e-458f-a0ab-30070c13a942" />
+  <img width="45" height="45" alt="image" src="https://github.com/user-attachments/assets/14b1f3c1-048e-458f-a0ab-30070c13a942" />
 
 
 𝔠+𝔥 𝔞𝔫𝔶𝔱𝔦𝔪𝔢.ᐟ 𝔞𝔫𝔶 𝔬𝔱𝔥𝔢𝔯 𝔦𝔫𝔣𝔬 𝔞𝔟𝔬𝔲𝔱 𝔪𝔢 𝔶𝔬𝔲 𝔠𝔞𝔫 𝔣𝔦𝔫𝔡 𝔬𝔫 𝔪𝔶 𝔴𝔢𝔟𝔰𝔦𝔱𝔢𝔰 ^_^
