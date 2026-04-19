@@ -1,8 +1,8 @@
-<img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/a494e942-f054-4162-b9d7-c61238d835fc-removebg.png" />
+<img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/a494e942-f054-4162-b9d7-c61238d835fc" />
 # 𝔥𝔢𝔩𝔩𝔬 ᝰ.ᐟ 
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
 ☘️ 𝔤𝔢𝔫𝔡𝔢𝔯𝔣𝔩𝔲𝔦𝔡 + 𝔠𝔦𝔰𝔤𝔢𝔫𝔡𝔢𝔯 𝜗 𝔲𝔫𝔡𝔢𝔯 12 𝔡𝔫𝔦, 𝔬𝔳𝔢𝔯 18 𝔡𝔢𝔭𝔢𝔫𝔡𝔰.
-<img width="540" height="337" alt="image" src="https://github.com/user-attachments/assets/020d3cce-55a1-4123-a3fd-dd8edc7c0e4b-removebg.png" />
+<img width="540" height="337" alt="image" src="https://github.com/user-attachments/assets/020d3cce-55a1-4123-a3fd-dd8edc7c0e4b" />
 
 
 
@@ -13,7 +13,7 @@
 
 𝔟𝔶𝔢 ᝰ.ᐟ 🍀
 
-<img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/29924f15-8538-4d3a-87af-c9a8a4cfc701-removebg.png" />
+<img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/29924f15-8538-4d3a-87af-c9a8a4cfc701" />
 
 
 
