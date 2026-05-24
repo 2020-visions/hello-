@@ -9,7 +9,6 @@
   <img width="45" height="45" alt="image" src="https://github.com/user-attachments/assets/14b1f3c1-048e-458f-a0ab-30070c13a942" />
 
 1x1x1x1 kin/fictkin, The King In Yellow (from sfawtde/dawtde) fictkin, D3rlord3 kin, Eijiro Kirishima kin, Katsuki Bakugo kin as of now. 
-
 <img width="1280" height="64" alt="image" src="https://github.com/user-attachments/assets/59ca3cb7-f2a4-4044-ac69-13e6bd6adffb" />
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/9574e259-f2b7-4aa3-96d2-f3c7590fc750" />
