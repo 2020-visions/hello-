@@ -1,10 +1,8 @@
 <p align="center">
 <img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/058ecf51-5d0f-45c5-93ae-4d7a3f9bf92f" /> 
 
-
 <p align="center">
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
-
 
 <img width="540" height="213" alt="image" src="https://github.com/user-attachments/assets/57c042f9-cc2b-4066-a160-af23429eb1bd" />
 
