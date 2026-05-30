@@ -1,13 +1,20 @@
 helloo!!!
 <p align="center">
-<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/fc8a018d-aa84-4c64-abe4-731a14a5039e" />
+<img width="400" height="224" alt="image" src="https://github.com/user-attachments/assets/9a3066a7-fe0d-42ec-94ef-153c9ed49ea4" />
 
+ABOUT ME
 
+Atheist (ex-chrstian) but respectul of religion! Please don't force any on me, you will be blocked.
 
+I like to draw both digitaly and traditionally! However i get distracted easily during projects so please don't ask me to draw anything for you.
 
+I am happily taken by my girlfriend.
+
+Genderfluid + Cisgender female
+Bisexual.
 
 <p align="center">
-<img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/7b285972-095a-458f-a2db-3b9421f61b35" />
+<img width="440" height="440" alt="image" src="https://github.com/user-attachments/assets/7b285972-095a-458f-a2db-3b9421f61b35" />
 
 <p align="center">
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
