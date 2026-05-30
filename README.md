@@ -1,7 +1,3 @@
-
-
-<p align="center">
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/03212c02-931d-4ee4-9198-8fe41f4fc243" />
 <p align="center">
 <img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/7b285972-095a-458f-a2db-3b9421f61b35" />
 
@@ -16,7 +12,7 @@ The King In Yellow x D3rlord3 enthusiast.
 
 Ships are okay with me, i'm a multishipper! But i'm not a fan of doublefedora, sorry.
 <p align="center">
-<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/8ce04a86-1b73-48b4-b329-0206de5bd8d5" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/03212c02-931d-4ee4-9198-8fe41f4fc243" />
 
 INT?
 
