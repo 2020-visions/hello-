@@ -26,4 +26,4 @@ NICKNAMES?
 Riley
 + If you are my friend, anything works.
 <p align="center">
-<img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/d794f5ab-548d-46f6-9fd6-3befbe97c8b6" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/d794f5ab-548d-46f6-9fd6-3befbe97c8b6" />
