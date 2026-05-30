@@ -12,6 +12,7 @@ I like to draw both digitaly and traditionally! However i get distracted easily 
 I am happily taken by my girlfriend.
 
 Genderfluid + Cisgender female
+
 Bisexual.
 
 <p align="center">
