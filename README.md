@@ -15,7 +15,8 @@
 𝐁𝐢𝐬𝐞𝐱𝐮𝐚𝐥.
 
 <p align="center">
-<img width="440" height="440" alt="image" src="https://github.com/user-attachments/assets/7b285972-095a-458f-a2db-3b9421f61b35" />
+<img width="540" height="360" alt="image" src="https://github.com/user-attachments/assets/4ecdd6be-0a5c-4258-b89f-f3d7a85fc329" />
+
 
 <p align="center">
 ᴛʜɪꜱ ʀᴇᴀᴅᴍᴇ ɪꜱ ᴀ ʟɪᴛᴛʟᴇ ʟᴀᴢɪʟʏ ᴅᴏɴᴇ, ᴀɴᴅ ᴍᴏꜱᴛ ɪɴꜰᴏ ɪꜱ ᴏɴ ᴍʏ ɴɪᴄᴇʟʏ ᴅᴇꜱɪɢɴᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^ 3 ^
