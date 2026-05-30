@@ -30,8 +30,8 @@ helloo!!!
 
 𝐁𝐮𝐭 𝐢'𝐦 𝐧𝐨𝐭 𝐚 𝐟𝐚𝐧 𝐨𝐟 𝐝𝐨𝐮𝐛𝐥𝐞𝐟𝐞𝐝𝐨𝐫𝐚 𝐨𝐫 𝐛𝐥𝐮𝐮𝐤𝐢𝐝𝐝/𝐜𝐨𝐨𝐥𝐝𝐮𝐝, 𝐬𝐨𝐫𝐫𝐲.
 <p align="center">
-<img width="205" height="205" alt="image" src="https://github.com/user-attachments/assets/e18d628f-3a89-4d26-9bee-18dba3adb513" />
-<img width="205" height="205" alt="image" src="https://github.com/user-attachments/assets/454c3958-ffd1-4aa7-85d1-7ae09467fd37" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/d794f5ab-548d-46f6-9fd6-3befbe97c8b6" />
+
 
 𝙸𝙽𝚃?
 
@@ -43,5 +43,3 @@ helloo!!!
 
 𝐑𝐢𝐥𝐞𝐲
 + 𝐈𝐟 𝐲𝐨𝐮 𝐚𝐫𝐞 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝, 𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐰𝐨𝐫𝐤𝐬.
-<p align="center">
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/d794f5ab-548d-46f6-9fd6-3befbe97c8b6" />
