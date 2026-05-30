@@ -1,6 +1,7 @@
 helloo!!!
 <p align="center">
-<img width="400" height="224" alt="image" src="https://github.com/user-attachments/assets/9a3066a7-fe0d-42ec-94ef-153c9ed49ea4" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/72ada545-2dfd-4506-b39e-ec9b45d13f40" />
+
 
 ABOUT ME
 
