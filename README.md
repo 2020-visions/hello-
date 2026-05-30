@@ -43,4 +43,3 @@
 + 𝐈𝐟 𝐲𝐨𝐮 𝐚𝐫𝐞 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝, 𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐰𝐨𝐫𝐤𝐬.
 <p align="center">
   <img width="343" height="480" alt="image" src="https://github.com/user-attachments/assets/fd728207-1755-427b-9630-262c4fb8a6ae" />
-<img width="343" height="480" alt="image" src="https://github.com/user-attachments/assets/a0e52351-7258-42cc-8316-3b64c259c3f7" />
