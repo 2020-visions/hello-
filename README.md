@@ -29,6 +29,7 @@ helloo!!!
 𝐒𝐡𝐢𝐩𝐬 𝐚𝐫𝐞 𝐨𝐤𝐚𝐲 𝐰𝐢𝐭𝐡 𝐦𝐞, 𝐢'𝐦 𝐚 𝐦𝐮𝐥𝐭𝐢𝐬𝐡𝐢𝐩𝐩𝐞𝐫! 
 
 𝐁𝐮𝐭 𝐢'𝐦 𝐧𝐨𝐭 𝐚 𝐟𝐚𝐧 𝐨𝐟 𝐝𝐨𝐮𝐛𝐥𝐞𝐟𝐞𝐝𝐨𝐫𝐚 𝐨𝐫 𝐛𝐥𝐮𝐮𝐤𝐢𝐝𝐝/𝐜𝐨𝐨𝐥𝐝𝐮𝐝, 𝐬𝐨𝐫𝐫𝐲.
+<p align="center">
 <img width="343" height="480" alt="image" src="https://github.com/user-attachments/assets/a0e52351-7258-42cc-8316-3b64c259c3f7" />
 
 𝙸𝙽𝚃?
