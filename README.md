@@ -12,7 +12,7 @@ The King In Yellow x D3rlord3 enthusiast.
 
 Ships are okay with me, i'm a multishipper! But i'm not a fan of doublefedora, sorry.
 <p align="center">
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/03212c02-931d-4ee4-9198-8fe41f4fc243" />
+<img width="540" height="540" alt="image" src="https://github.com/user-attachments/assets/454c3958-ffd1-4aa7-85d1-7ae09467fd37" />
 
 INT?
 
