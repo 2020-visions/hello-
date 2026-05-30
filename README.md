@@ -10,8 +10,18 @@
 
 The King In Yellow x D3rlord3 enthusiast.
 
-<img width="1280" height="64" alt="image" src="https://github.com/user-attachments/assets/59ca3cb7-f2a4-4044-ac69-13e6bd6adffb" />
+Ships are okay with me, i'm a multishipper! But i'm not a fan of doublefedora, sorry.
+<p align="center">
+<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/8ce04a86-1b73-48b4-b329-0206de5bd8d5" />
 
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/9574e259-f2b7-4aa3-96d2-f3c7590fc750" />
+INT?
 
-"THE KING IS HERE."
+When interactiing with me, please be cautious. I'm not the type of person to start a conversation first but i would love to c+h! I wont bite you. 
+
+NICKNAMES?
+
+1x/1x1x1x1
+Riley
++ If you are my friend, anything works.
+<p align="center">
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/58100a54-5f30-4400-8c04-66a093f9a1a2" />
