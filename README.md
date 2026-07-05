@@ -6,7 +6,9 @@ More infro here that i cant put in my main because it would look too crowded.
 
 ⤷ 1xdoe
 
-⤷ 1xazure (?, maybe, i'm still concerned on if i see them as "twin siblings" or not)
+⤷ doublezipper (also known as 1xazure, this is a maybe, i'm still concerned on if i see them as "twin siblings" or not)
+
+⤷ 1xnoli (noli would definetly be ragebaiting 1x just for the love of the game dude.)
 
 ⤷ daisy1337 (canon)
 
@@ -20,7 +22,7 @@ More infro here that i cant put in my main because it would look too crowded.
 
 ⤷ ichance (to a minimum)
 
-⤷ frozendebt (once again maybe, i kinda see it like a rarepair)
+⤷ frozendebt (once again, i kinda see it like a rarepair)
 
 ⤷ azuretime
 
