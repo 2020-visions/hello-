@@ -40,13 +40,13 @@ specifically a darkship or a really bad proship. I'm not that strict.
 
 𝐒𝐇𝐈𝐏𝐒 𝐈'𝐌 𝐔𝐍𝐂𝐄𝐑𝐓𝐀𝐈𝐍 𝐀𝐁𝐎𝐔𝐓 𝐎𝐑 𝐌𝐀𝐘 𝐍𝐎𝐓 𝐋𝐈𝐊𝐄 "( – ⌓ – ) !!
 
-⤷ pizzadebt 
+⤷ pizzadebt (uncertain but i don't mind it)
 
 ⤷ doublefedora (i personally don't like this one)
 
 ⤷ pizzaburger (fuh naw...)
 
-⤷ adminvirus (FUH NAWWWW, epecially as a 1x kin/fictkin, do NOT int with me at all if you ship this, pleaase.)
+⤷ adminvirus (FUH NAWWWW, epecially as a 1x kin/fictkin, do NOT int with me at all if you ship this, please.)
 
 ⤷ veronica x noob (I've never really seen anyone ship this, i'm considering it.)
 
