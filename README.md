@@ -4,6 +4,10 @@ More infro here that i cant put in my main because it would look too crowded.
 
 ⤷ shopdebt
 
+⤷ 1xdoe
+
+⤷ 1xazure (?, maybe, i'm still concerned on if i see them as "twin siblings" or not)
+
 ⤷ daisy1337 (canon)
 
 ⤷ matt x molly (also techincally canon) 
@@ -16,7 +20,7 @@ More infro here that i cant put in my main because it would look too crowded.
 
 ⤷ ichance (to a minimum)
 
-⤷ frozendebt
+⤷ frozendebt (once again maybe, i kinda see it like a rarepair)
 
 ⤷ azuretime
 
@@ -24,7 +28,7 @@ More infro here that i cant put in my main because it would look too crowded.
 
 ⤷ brightsky (my parents fr)
 
-⤷ prettycooldud 
+⤷ prettybluudud (i think its cute imo.)
 
 i can't think of any others ships so bear with me for a second-
 
@@ -46,13 +50,13 @@ specifically a darkship or a really bad proship. I'm not that strict.
 
 ⤷ cooldud (i js don't see the dynamic and i see too much problematic art of them to like the ship anymore, sorry.)
 
-⤷ bluudud1337 (ABSOLUTELY NOT. DNI DNI DNI DNIIIIIIIDNIDNINDINDINDIDNINDIID)
+⤷ bluudud1337 (ABSOLUTELY NOT. DNI DNI DNI DNIIIIIIIDNIDNINDINDINDIDNINDIIDNI)
 
 ⤷ prettykidd (I've never seen anyone ship this, so maybe not.)
 
 ⤷ coolkidd x anyone to begin with (i just dont think he would be dating anyone as young as he is. Unless its non-forsaken coolkidd.)
 
-rare pairs are fine of course unless stated above !! 
+rarepairs are fine of course unless stated above !! 
 
 
 if i missed any other ships, which i definetly have, feel free to just whisper me and ask about it if you want to c+h but have 
