@@ -26,7 +26,7 @@ More infro here that i cant put in my main because it would look too crowded.
 
 ⤷ azuretime
 
-⤷ noli7n7
+⤷ voidburger
 
 ⤷ brightsky (my parents fr)
 
