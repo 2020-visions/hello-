@@ -18,6 +18,10 @@ More infro here that i cant put in my main because it would look too crowded.
 
 ⤷ noob666
 
+⤷ newblood (jason and noob)
+
+⤷ pizzacola (jason and elliot)
+
 ⤷ chance1337
 
 ⤷ ichance (to a minimum)
@@ -25,6 +29,8 @@ More infro here that i cant put in my main because it would look too crowded.
 ⤷ frozendebt (once again, i kinda see it like a rarepair)
 
 ⤷ azuretime
+
+⤷ gasharpoon x mafioso (rarepair? i think its cool)
 
 ⤷ voidburger
 
@@ -55,6 +61,8 @@ specifically a darkship or a really bad proship. I'm not that strict.
 ⤷ bluudud1337 (ABSOLUTELY NOT. DNI DNI DNI DNIIIIIIIDNIDNINDINDINDIDNINDIIDNI)
 
 ⤷ prettykidd (I've never seen anyone ship this, so maybe not.)
+
+⤷ slasher/jason1337 (i dunno honestly)
 
 ⤷ coolkidd x anyone to begin with (i just dont think he would be dating anyone as young as he is. Unless its non-forsaken coolkidd.)
 
