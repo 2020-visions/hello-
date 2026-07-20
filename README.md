@@ -34,6 +34,8 @@ More infro here that i cant put in my main because it would look too crowded.
 
 ⤷ voidburger
 
+⤷ 117n7/008o8 (118o8 and 007n7, absolutely, thats my romance right there.)
+
 ⤷ brightsky (my parents fr)
 
 ⤷ prettybluudud (i think its cute imo.)
