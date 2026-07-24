@@ -52,7 +52,7 @@ specifically a darkship or a really bad proship. I'm not that strict.
 
 ⤷ doublefedora (i personally don't like this one)
 
-⤷ pizzaburger (fuh naw...)
+⤷ pizzaburger (fuh naw... i don't like the tropes where elliot is always mean to 7n7.)
 
 ⤷ adminvirus (FUH NAWWWW, epecially as a 1x kin/fictkin, do NOT int with me at all if you ship this, please.)
 
@@ -64,7 +64,7 @@ specifically a darkship or a really bad proship. I'm not that strict.
 
 ⤷ prettykidd (I've never seen anyone ship this, so maybe not.)
 
-⤷ slasher/jason1337 (i dunno honestly)
+⤷ slasher1337/jason1337 (i dunno honestly)
 
 ⤷ coolkidd x anyone to begin with (i just dont think he would be dating anyone as young as he is. Unless its non-forsaken coolkidd.)
 
